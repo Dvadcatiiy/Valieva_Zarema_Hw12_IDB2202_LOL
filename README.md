@@ -1,0 +1,1 @@
+# Valieva_Zarema_Hw12_IDB2202_LOL
